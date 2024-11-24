@@ -27,7 +27,7 @@
 
 ### 💡 Fuera de la programación:
 
-- Me gusta trabajar en equipo
+- Prefiero trabajar en equipo
 - Sé escuchar
 
 ---
